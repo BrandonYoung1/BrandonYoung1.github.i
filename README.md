@@ -7,4 +7,4 @@ A picture of the front of my school 360
 
 Project Description
 
-This was a 360 photo I took of the front of the school. I took this picture because I wanted to show how the school looked at this certain time. Hopefully you get interested as to the possiblities of 360 photo taking with this.
+This was a 360 photo I took of the front of the school. I took this picture because I wanted to show how the school looked at this certain time. Hopefully you get interested as to the possiblities of 360 photo taking with this image.
